@@ -1,1 +1,0 @@
-# Satykinorn.github.io
